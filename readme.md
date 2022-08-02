@@ -1,6 +1,6 @@
 # Wassup Bois
 
-LessGoo !!
+LessGoo !
 
 
 Shreyas Here with AK & PG Boiis
